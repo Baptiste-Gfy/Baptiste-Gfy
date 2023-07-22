@@ -16,7 +16,7 @@
 
 Disponibilité : Dés que possible
 
-Email : geffroy.baptiste@outlook.fr
+Email : geffroy.baptiste.dev@gmail.com
 
 Téléphone : 07.83.96.51.43
 
