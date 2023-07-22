@@ -22,4 +22,4 @@ Téléphone : 07.83.96.51.43
 
 Localisation souhaitée : Nantes, Remote ou autre
 
-Si mon profil vous intéresse, n'hésitez pas à m'écrire sur geffroy.baptiste@outlook.fr ou m'ajouter sur LinkedIn https://www.linkedin.com/in/baptiste-geffroy/
+Si mon profil vous intéresse, n'hésitez pas à m'écrire sur geffroy.baptiste.dev@gmail.com ou m'ajouter sur LinkedIn https://www.linkedin.com/in/baptiste-geffroy/
